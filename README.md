@@ -1,0 +1,1 @@
+# Uso-de-Visual-Paradigm
